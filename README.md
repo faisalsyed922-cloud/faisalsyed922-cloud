@@ -18,10 +18,10 @@ the intersection of rigorous mathematical reasoning, programming, and applied fi
 - Risk analysis and modeling
 - Markets, macroeconomic signals, and policy interpretation
 
-### What I Bring
-- Strong mathematical intuition and proof-based thinking
-- Ability to translate abstract theory into concrete models
-- Clear technical communication across quantitative and non-technical domains
+### Interests/Extracurriculars
+- Lifelong Notre Dame  and Manchester United fan
+- Avid Fantasy Premier League player, top 1000 in the world in 2024
+- President of the Chi Chapter of Delta Tau Delta, Rah Delt
 
 📫 **Contact: syed1@kenyon.edu / faisalsyed922@gmail.com 
 🔗 **LinkedIn:** https://www.linkedin.com/in/faisal-syedd/
